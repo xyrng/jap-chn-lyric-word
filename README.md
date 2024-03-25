@@ -1,0 +1,1 @@
+# jap-chn-lyric-word
